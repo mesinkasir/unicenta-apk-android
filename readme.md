@@ -69,6 +69,7 @@ Play and watch video [https://youtu.be/SArg3S0cKxA](https://youtu.be/SArg3S0cKxA
 
 ----------------------------------------------------------------------------
 
+[Download APK Android →](https://github.com/mesinkasir/unicenta-apk-android/raw/main/unicenta-ng.apk)
 
 ### Buy me a coffee :hearts: ✌🏻
 
